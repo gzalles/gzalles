@@ -2,4 +2,4 @@
 - 👀 I’m interested in ... privacy
 - 🌱 I’m currently learning ... how to mind my own business
 - 💞️ I’m looking to collaborate on ... spatial audio research and music projects
-- 📫 How to reach me ... email, email, email
+- 📫 How to reach me ... email
